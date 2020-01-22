@@ -1,5 +1,7 @@
 # git-proverbes
 
+Pierre qui roule n'amasse pas mousse. (YBM)
+
 Mes voies sont impénétrables -Dieu
 
 Si tu as déjà mangé le poison, tu peux bien finir le plat.
