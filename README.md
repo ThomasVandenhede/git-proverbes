@@ -17,3 +17,5 @@ Qui se couche avec le cu qui gratte se leve avec le doigt qui pue. :/
 Work, look for peace and calm in work: you will find it nowhere else.
 
 Un chasseur sachant chasser doit savoir chasser sans son chien
+
+Comme un fait son couche on se lit.
